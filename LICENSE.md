@@ -1,4 +1,4 @@
-# 
+# custom bot de negociação Bybit plugins é o melhor bot de negociação Bybit plugins com provisão de liquidez e gestão de riscos. Seguro, confiável e otimizado para estratégias de
 
 
 
